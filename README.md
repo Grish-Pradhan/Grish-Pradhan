@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hey, I'm Grish Pradhan
 🔭 I’m currently Studying at Softwarica College | Coventry University<br>🌱 I’m currently learning Ethical Hacking & Cybersecurity<br>
 
 
